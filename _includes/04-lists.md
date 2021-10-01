@@ -1,4 +1,4 @@
-* Games 
-* Brutalist Architecture
-* Music 
-* Desining 
+*Games 
+*Brutalist Architecture
+*Music 
+*Desining 
